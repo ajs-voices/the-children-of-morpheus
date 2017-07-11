@@ -10,7 +10,7 @@ Sage watched them walk down the street and around the corner before he closed th
 
 "They like you too."  Sage grinned.  "Dee likes you that's for sure.  Dev's hard to read."
 
-I shook my head, "He's a telepath, he probably is used to keeping his motives to himselve."
+I shook my head, "He's a telepath, he probably is used to keeping his motives to himself."
 
 "What?"  Sage sounded shocked.  He hadn't known?  "How do you know?"
 
