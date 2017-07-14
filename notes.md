@@ -10,22 +10,22 @@ After fighting with the Academy about sending children to their deaths Nox final
 
 ## Outline
 
-Lead up from Darwynn's Law summarizing the events in the shorts
-Nox seeks out each of the children
-* Sam Reed (6)
-* Emma Phillips (6)
-* Jeffery Taylor (11)
-* Marvin Thomas (15)
-Nox looks for the missing teenage boy
-* Levi Hughes (19)
-Nox confronts Garrett
-Nox meets a telepath (Devin Alexander)
-Dev helps Nox with his 'shields'
-A nightmare attacks his house in the flesh
-Nox confronts Garrett as he's being cojoled by 'his' demon master
-Demon runs and jumps off the AU building
-Nox saves Garrett but both are 'mortally injured'
-Nox wakes up in the hospital and is committed of his own free will to the phscye ward for suicide watch ( a ploy by the Eriksens to watch him)
+<strike>Lead up from Darwynn's Law summarizing the events in the shorts</strike>
+<strike>Nox seeks out each of the children</strike>
+<strike>* Sam Reed (6)</strike>
+<strike>* Emma Phillips (6)</strike>
+<strike>* Jeffery Taylor (11)</strike>
+<strike>* Marvin Thomas (15)</strike>
+<strike>Nox looks for the missing teenage boy</strike>
+<strike>* Levi Hughes (19)</strike>
+<strike>Nox confronts Garrett</strike>
+<strike>Nox meets a telepath (Devin Alexander)</strike>
+<strike>Dev helps Nox with his 'shields'</strike>
+<strike>A nightmare attacks his house in the flesh</strike>
+<strike>Nox confronts Garrett as he's being cojoled by 'his' demon master</strike>
+<strike>Demon runs and jumps off the AU building</strike>
+<strike>Nox saves Garrett but both are 'mortally injured' (didn't save Garret)
+<strike>Nox wakes up in the hospital and is committed of his own free will to the phscye ward for suicide watch ( a ploy by the Eriksens to watch him)</strike>
 Nox meets his table mates including Jo
 Nox has sessions with therapist Dr Wilton
 Nox meets with Margo for the first time since he found out what she did
