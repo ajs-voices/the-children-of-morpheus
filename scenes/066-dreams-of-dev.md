@@ -24,7 +24,7 @@ Dev rolled back to his side and proped his head up on his hand and looked down a
 
 I looked down and saw a pair of shorts and the same t-shirt I had worn in the hospital. "Yeah."
 
-Dev smiled, a real smile.  "Your control of the dream plane is pretty good.  Most people choose a favorite.  And I knoew Dorian just bought these for you."
+Dev smiled, a real smile.  "Your control of the dream plane is pretty good.  Most people choose a favorite.  And I know Dorian just bought these for you."
 
 "How do you know that?"  I asked.
 

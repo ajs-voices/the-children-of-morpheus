@@ -26,10 +26,10 @@ After fighting with the Academy about sending children to their deaths Nox final
 <strike>Demon runs and jumps off the AU building</strike>
 <strike>Nox saves Garrett but both are 'mortally injured' (didn't save Garret)
 <strike>Nox wakes up in the hospital and is committed of his own free will to the phscye ward for suicide watch ( a ploy by the Eriksens to watch him)</strike>
-Nox meets his table mates including Jo
+<strike>Nox meets his table mates including Jo</strike>
 Nox has sessions with therapist Dr Wilton
-Nox meets with Margo for the first time since he found out what she did
-Nox finds a 'crazy boy' and finds out its the boy he's looking for
+<strike>Nox meets with Margo for the first time since he found out what she did</strike>
+<strike>Nox finds a 'crazy boy' and finds out its the boy he's looking for</strike>
 Sage brings an outside 'therapist' to see Nox and the boy (the telepath)
 Telepath breaks hold over Levi but he's too far gone
 Nox finds out he's being poisoned by the doctors
