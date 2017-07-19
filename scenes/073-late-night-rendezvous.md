@@ -26,7 +26,7 @@ I sighed.  "I don't get phone calls.  I can't check my email.  I have to go thro
 
 I pressed my lips to his and whispered against them.  "Then we shouldn't waste it talking anymore."
 
-Dev laughed and pulled me down on top of him.  The world shifted around us we weren't outside.  I didn't know where we were but I didn't care as Dev pressed body up against me.  His fingers gripped my hair as he pulled me closer to kiss harder and deeper.  I ground against him.  Dev groaned against me when there was a faint beeping in the distance.
+Dev laughed and pulled me down on top of him.  The world shifted around us we weren't outside.  I didn't know where we were but I didn't care as Dev pressed his body up against me.  His fingers gripped my hair as he pulled me closer to kiss harder and deeper.  I ground against him.  Dev groaned against me when there was a faint beeping in the distance.
 
 
 I sighed.  "One day we'll get to finish this."
