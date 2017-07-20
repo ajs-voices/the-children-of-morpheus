@@ -6,7 +6,7 @@ There darkness grew lighter and I felt warmth on my skin.  It was like watching 
 
 In the distance a figure approached.  It was blurry, like I was seeing a mirage.  It walked towards me coalesing as it came near.  I was sitting on the ground, a red picinic blanket below me.  A tree behind me with a dragon statue at the base.  I leaned back against the trunk and looked up.  I remembered the dream.  I'd had it before.  Not this dream, but these images.  I'd seen them all before.  But I couldn't remember them, couldn't remember how I knew I'd had this dream before.
 
-The figure that walked towards me was standing in front of me.  He wore jeans and a t-shirt.  His feet were bare and I could imagine the feel of the cool grass on his feet.  He sat down and smiled.  No it wasn't a smile it was a smirk.  He was laughing at me for some reason.  I grinned at him and patted the blanket next to me.
+The figure that walked towards me was standing in front of me.  He wore jeans and a t-shirt.  His feet were bare and I could imagine the feel of the cool grass on his feet. Where had the grass come from?  He sat down and smiled.  No it wasn't a smile it was a smirk.  He was laughing at me for some reason.  I grinned at him and patted the blanket next to me.
 
 He knelt down next to me and splayed his body along the red blanket and leaned his head on his hand so he was propped up looking up at me.  "Interesting choice."
 

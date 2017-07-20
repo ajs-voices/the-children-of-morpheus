@@ -4,7 +4,7 @@ This was the first time I'd gone to sleep willingly wanting to fall asleep immed
 
 I must have drifted because when I opened my eyes I was under the tree again - alone.  But I could smell citris and lavendar on the wind as it blew through the barren braches.  The images flickered like a television set needing rabbit ears adjusted.  Shifting and phasing in and out of existance.
 
-I walked away from the tree towards the horizon.  It was perfect and yet so bizarre.  The sun and the stars, the moon and the clouds.  There was a hand at the small of back.  I smiled.  "I hoped you'd come."
+I walked away from the tree towards the horizon.  It was perfect and yet so bizarre.  The sun and the stars, the moon and the clouds.  A path of green grass lead to the tree and all around it was green where before only brown overturned soil had been. There was a hand at the small of my back.  I smiled.  "I hoped you'd come."
 
 Dev smiled.  "I can't stay long pretty boy.  But I could feel you calling me.  I've got to work in an hour."
 
