@@ -1,0 +1,13 @@
+# Push and Pull
+
+Sage took Dev home.  Night couldn't come fast enough.  But the thought that the three of them were alone again together made me cringe.  I knew I would be there with them, that it wasn't their fault I was locked up in here.  I had done it willingly and knowningly because I knew the Venatori.  But they spent their lives together.  I was stuck in this shit hole.
+
+Lunch came and went.  Dinner too.  Those little blue pills still taking my breathe away.  It'd be nice if they actually did something, but I didn't feel any less depressed, any less anxious.  Other than that shortness of breath for a moment or two there was nothing.  Jo was neither at lunch or breakfast and that had me a tad concerned but when I asked Lori I was dismissed it with a change of topic.
+
+I didn't know where her room was, and while I could sense her off in some direction I let it be. And I really wasn't thinking beyond the cursory notice she wasn't here.  My mind was firmly planted on my two blue eyed babes I was going to dream about tonight.
+
+My little group noticed my distraction and left me to my idle thoughts.  I went to bed early and didn't do yoga or anything like I usually did.  My mind was still feeling the effects of whatever magic we'd done before.  I felt them yet I knew that was wrong.  I felt them like I felt Ant.  That distant link we shared from a the blood sharing.  I could easily call Ant to me and he could whisk me away to some tropical island and no one would know where I'd gone.  But the shadows in my room were too small and I really hated traveling that way.  And I didn't want to go anywhere but home.
+
+Laying down in my bed I couldn't see the stars through any window or see the moon in the sky, but I felt that pull.  It wasn't on me, but Fae and Jo both felt it.  The full moon was close I should figure out how close in the morning.  My thoughts of stars and moons left and I drifted into the void of my dreams.
+
+The comforting feel of floating in the darkness.  I'd never thought dreams could be peaceful.  And now, it seemed I was doing just that.  I felt the push and pull of my cusconsdious.  I went where it told me to.  I drifted in the images and thought of blue eyes.  One so dark they almost looked black in the right light, the other so light they were almost grey.  It was their eyes that drew me towards them in terms of attraction.  I'd never thought about it before and I really didn't have much time to think about it then as the world around me brightened.

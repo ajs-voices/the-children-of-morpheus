@@ -30,8 +30,8 @@ After fighting with the Academy about sending children to their deaths Nox final
 Nox has sessions with therapist Dr Wilton
 <strike>Nox meets with Margo for the first time since he found out what she did</strike>
 <strike>Nox finds a 'crazy boy' and finds out its the boy he's looking for</strike>
-Sage brings an outside 'therapist' to see Nox and the boy (the telepath)
-Telepath breaks hold over Levi but he's too far gone
+<strike>Sage brings an outside 'therapist' to see Nox and the boy (the telepath)</strike>
+<strike>Telepath breaks hold over Levi but he's too far gone</strike>
 Nox finds out he's being poisoned by the doctors
 Deborah Atkins brings the demon to Nox in the infirmary under the guise of friend
 There is a fight in a dream state and Nox manages to banish the demon with some extra help from his new telepath friend and Sage
