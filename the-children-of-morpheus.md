@@ -3624,4 +3624,99 @@ I sighed and stepped away from Jo.  "This was protecting you from yourself.  Fro
 
 "You are.  You are acting like a wolf just a moment a go.  I've been around enough females and their alphas to know."
 
+Jo stalked out of my room like I was the bad guy here.  She would turn again tonight and the following.  But she'd not remember the transformation for a few more months.  This was a dangerous time.  I sat down on my bed and slouched against the wall.  I was tired...
+
+# Truth and Lies
+
+I don't know how long I laid there but a woman cleared her throat and tapped on the door frame.  "Nox?" Madison's voice echoed in the small empty room.
+
+I opened my eyes and squinted at her before I closed them again.  "Hmmm?" I asked.  I didn't want to move I was tired and I was going to have a long few nights.
+
+"You have an appointment with Dr. Eriksen."
+
+I sighed.  "Can we do it in here, I don't want to move?"
+
+Another voice echoed behind Madision.  "I suggested the same thing."
+
+My eyes popped open and I sat up straighter on the bed.  Dr. Eriksen was a pretty woman, her green eyes were dull and the patterns around her swirled with disorientantion and I had to cover my eyes with my hands otherwise I might lose what little I'd left in my stomach from dinner the night before.
+
+"I'd like to take a look at your vitals and see how well you are recovering."
+
+"I'm good as new."  My voice was muffled by my hands.
+
+"Look at me."  Her voice was directly in front of me and I moved my hands and looked up knowing that there would be patterns and a bright light as she checked for pupil dialation and all that fun nuerological tests.  Watch the light, don't turn your head.  Follow my finger.  We'd done it all before after I'd woken up.  They were annoying tests but I understood they were concerned about brain damage.  I wasn't.  I was fine, even walking was easier.
+
+After all that was said and done she sat down in the chair opposite me.  It was a little awkward since it didn't swivle all the way around and she was continually turning back towards the desk like it was meant to be used.  "I don't bite."  I said with a grin, "Unless you want me to that is."
+
+I saw a faint pink in her cheeks but it was gone as quick as it showed up.  Not like my boy Sage.  I missed him already.  I really wanted to just curl up with my family and go to sleep after this.  I was done a week.
+
+Dr. Eriksen sighed and stood up to walk over to my bed and plopped down and let ou one of those well it could be worse sighs.  "I have a confession to make.  You're miraculous recovery has fueld a great number of questions these past few weeks.  And even more so as we progress through your stay here.  Not only did you recover quickly you continue to fight off the poison that has been delivered to you.  The doses have been increased and it's like it never even affects you."
+
+"Wait.  What?  Poison."  I stood up and glared at her.  I wanted to through her up against a wall and pin her there and make her speak, but I didn't.  I kept my hands at my sides.  I clamped my shield down tighter than I ever had before.  My powers wrapped around me like a bubble and I could feel them turning in on me lest I explode in a fury.  While in control it's still scary as fuck to be in the middle of the chaos if you don't know what's happening.
+
+She never looked up.  She didn't even bother to meet my eyes.  "It is well within our laws to experiment on you."
+
+"Experiment on me?  What the fuck lady?"  I started pacing to keep from blowing up.  "I'm not some puppet you can do with whatever you wish."
+
+Dr. Eriksen met my brown eyes with her dull green ones and frowned.  "It's well within our rights.  You signed the papers - we all do."
+
+"Bullshit.  You tried to kill me.  I could kill you now for that transgression against my life."
+
+"And someone will go after you to avenge my murder.  We were well with in our rights."
+
+"Fuck you.  I want out of here now."
+
+Dr Eriksen's frown deepened.  "You can't.  You need physological clearance.  I will have them do their final evaluation but it can still take a few days."
+
+She stood up to leave and walked to the door, turning around just inside.  "I was well with in my rights.  We learned a great deal from you."
+
+"What else have you done to me?"
+
+"Nothing.  Just watch you.  Study you.  It's why you are here.  To control you.  We'd like your cooperation and you can stay here."
+
+"No fucking way lady - no fucking way."
+
+She only nodded as she left me alone brooding in my fury.
+
+# Calming my temper
+
+I was about to let my power flair around me when I heard a small voice clear behind me.  I turned to see the cutest brunette.  When I say cutest I don't mean she was the cutest thing I ever saw.  Because I'm sure I'd seen cuter before.  But Dee stood in the door way wearing a plaid pleated catholic school girl skirt and a black t-shirt with a unicorn on it and under it said "I will cut you."  Her hair was pulled away from her neck in a low pony tail and she wore the sheerest amount of makeup.  I knew that only because I'd seen her go to bed without any a few nights back.  Well two weeks but still.
+
+She smiled at me though it didn't reach her eyes.  Something was different.  But she cut through the fury with like a hot knife.  Dee kicked the door and it closed behind her.  Her hips swayed as she walked and I watched each movement until she was standing directly in front of me.  I looked down into those green eyes.  They were darker than usual, colder too.  But her smile was warm and inviting and she touched my cheek with the back of her hand.  "Why don't you shave?  Our other boys do.  This will be so scratchy."
+
+I smiled down at her, "I've never had anyone complain duckling."
+
+She laughed, "Because they were distracted by other bits I'm sure."
+
+"As you would be.  And there are three of us, plenty to distract you."  I bit my bottom lip and she hummed at the gesture.
+
+"I suppose I'll get used to it.  But why don't you shave?"
+
+"I look like I'm twelve without it."  I said with hatred.  I worked my ass off to be what I am.  I wasn't about to be asked if I could drink every fucking time I went into a club.
+
+"You can't look twelved darling.  Your eyes say so much more than that."
+
+"Yeah well most people aren't looking at mey eyes."
+
+She stepped closer, her body pressing against mine.  "Did you see Sage and Dev last night?"
+
+She pushed me back a few more steps and I yielded until my legs hit the back of my bed and I sat down.  I was looking up at Dee and she looked down with a seductive grin.  Those eyes were darker still.  "I wanted to see you since I couldn't join you."
+
+"We didn't do anything."
+
+She grinned.  "Oh I know, Sage was upset that Dev came back shortly after he fell out."
+
+"There was an emergency here, I had to go."
+
+"Dev didn't mention that."
+
+I shrugged.
+
+Dee pulled her t-shirt over her head and my fingers clenched in the blankets on my bed.  She smiled down at me, "Would you like to touch me?"
+
+"Yes."  I breathed out slowly.
+
+She laughed and shook her head.  "Well not now, lover boy."  She lifted her skirt and straddled my legs.  I had to fight to breathe.  Her body was hot against mine.  She took my hands and placed on each of her as cheeks and rocked against me.  I pulled her closer against me and she rocked again.  Her eyes stayed locked with mine, until she was panting hard and her head fell backwards.  My body ached for her.  She bit back her orgasm as she rocked against me through the height and let down.  I was rutting up to meet her seeking friction for my own release but she froze her movemetns and chuckled as I groaned my displeasure.
+
+Her eyes had gone black, but there was no time to react as she pressed a kiss to my lips and I yelped at the electrical charge that passed between us.  And then there was nothing but the thick suffocating darkness.
 
