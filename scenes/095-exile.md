@@ -108,4 +108,4 @@ I nodded.  "I am."
 
 "It's permanent - the world will see the tattoo etched on your temple."
 
-I nodded and Matt put his hand on my waist and helpd me close to his body.  "I know." I whispered.  I was about to face one of my biggest fears.  And I would do it just as I did when I was 18 - with fear but without giving them the satisfaction of seeing me shaking in my boots.  Fuck them.  Fuck the Venatori!
+I nodded and Matt put his hand on my waist and held me close to his body.  "I know." I whispered.  I was about to face one of my biggest fears.  And I would do it just as I did when I was 18 - with fear but without giving them the satisfaction of seeing me shaking in my boots.  Fuck them.  Fuck the Venatori!

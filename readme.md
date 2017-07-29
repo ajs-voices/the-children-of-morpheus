@@ -13,6 +13,7 @@ by AJ Hunter
 * [It's My Life](https://play.google.com/music/preview/Trqr4wd422uk46oje3dla5vlplq?lyrics=1&u=0#) By Bon Jovi
 * [I'm on top of the world](https://play.google.com/music/preview/Tu52bdafuokwji5dgiditgexuki) By Imagine Dragons
 * [Once Upon a Dream](http://www.azlyrics.com/lyrics/lanadelrey/onceuponadream.html) by Lana Del Rey
+* [Dream a Little Dream of Me](http://www.azlyrics.com/lyrics/blindguardian/dreamalittledreamofme.html)
 
 ## Images
 

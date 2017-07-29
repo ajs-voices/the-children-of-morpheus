@@ -59,170 +59,170 @@ There was movement behind me and the cold fingers on my hand taking my shirt and
 # Finding Emma
 
 We sat wrapped around each other for a long time.  No one bothered us here.  We'd only be kicked out if there was a scheduled lesson.  Sam stopped crying and I hugged him tight before I held him away from me.  "Can you take me to Emma?  We need to stop this."
-
+ 
 Sam nodded and stood up and took my hand.  "This way."
-
+ 
 I stood up and pulled my shirt and hoodie down and followed Sam through the halls of the Academy to another orange door and I tried not to let my fear of what we'd find.  The rooms were sound proof but you didn't hear any sounds coming in.  We went up stairs to the observation room and saw Emma with her hands pressed to the wall and Sam gasped and I felt my heart jump into my throat.  Garrett was standing behind her whispering in her ear.  Sam's hand tightened around my hand.  He pulled himself closer.  Fury rose up inside and I touched the intercom button.  "Open the door Garret."  I was a lot braver when I was this far away from him.  I didn't know if it's would last, but I wasn't going to let him hurt that little girl anymore.
-
+ 
 He looked up into the observation room looking for me, but he couldn't see, he knew better. I touched few more buttons on the panel with the intercom and then I went down stairs and I pounded on the door.  Garrett opened the door and had tentacle of air behind him like he did in my nightmares.
-
+ 
 Sam hid behind my leg and held onto me whimpering.  I glared back at the man.  "You won't hurt them anymore."
-
+ 
 Garrett laughed. "You think you have a backbone now?"
-
+ 
 The air whip cracked in the air and I stood my ground.  "You will not hurt them again!"
-
+ 
 A second and third whip joined the first and they all began cracking in the air like thunder.  Sam was crying behind me, clawing at my leg and it spurred me on.  I was waiting for him to hit me.  If he'd just hit me I'd be in my right to fight back.
-
+ 
 Garrett laughed at me and he turned towards the little girl who was standing oblivious to what was happening around her, she was lost in the dream of her mentor.  The same dream Sam and I knew well.  He let one of the air whips crack against her skin.  She screamed silently still lost in the dream state but the pain was real. But the blood and the laceration on the girl's skin were real and that was more than enough for me.  I flung an net of air at Garrett and he flew to the wall behind me.  I spoke softly to Sam.  "Wake Emma, Sam.  Wake her and go upstairs and do not open the door for anyone but me.  Do you understand?"
-
+ 
 Sam nodded his head and he went Emma and shook her and shook her until she came out of the daze crying.  Her body was already healing but I wrapped her in the elements as they left and hoped it wouldn't scar.  "Shut the door behind you."
-
+ 
 Sam and Emma hurried out and the door closed behind them.
 
 
 # I’m Better Than You
-I stalked over to Garrett and for the first time in my entire life I didn't feel like I was five in his presence.  I felt like the man I had become because of him.  Because of the things he did to me.  I wasn't weak.  I wasn't a doormat.  I wasn't some fucking toy.  I stopped a foot from the man who I despised with every fiber of my being.
-
-And for the first time in his entire life Garrett stared back at me with fear.  I took a deep breath and had to take a step back.  My anger was racing around me, I could see fire spinning waiting to be unleashed.  I felt the heat of the room rising.  I took another step back and focused on the connections around me.  I thought about Drake and how he would never have a person like this in his life.  I wouldn't let anyone hurt Faelen ever again.  I would help Matt discover his true talent.  But most of all I focused on all those I loved.  I had people in my life.
-
+I stalked over to Garrett and for the first time in my entire life I didn't feel like I was five in his presence.  I felt like the man I had become because of him.  Because of the things he did to me.  I wasn't weak.  I wasn't a doormat.  I wasn't some fucking toy.  I stopped a foot from the man who I despised with every fiber of my being.  
+ 
+And for the first time in his entire life Garrett stared back at me with fear.  I took a deep breath and had to take a step back.  My anger was racing around me, I could see fire spinning waiting to be unleashed.  I felt the heat of the room rising.  I took another step back and focused on the connections around me.  I thought about Drake and how he would never have a person like this in his life.  I wouldn't let anyone hurt Faelen ever again.  I would help Matt discover his true talent.  But most of all I focused on all those I loved.  I had people in my life. 
+ 
 I sneered at Garrett.  "You won't take them from me."
-
+ 
 I took a step back and released Garrett from the net of air and he fell to the floor in heap.  "I recorded your attack on me.  I recorded the fear Sam has for you.  But more importantly I recorded you hurting that little girl.  You will never touch another kid again.  If I find you near any child I will put a bullet in your brain faster than you can say my name.  And it is with in my right as Venatori to take the life of someone who harms his own by the Clandestine Providence.  You do not fucking hurt children!"
-
+ 
 I turned around and walked quickly out the room and left the orange door wide open as I turned and went up into the observation room and knocked on the door.  "Sam let me in."
-
+ 
 The door quickly unlatched and two sets of arms wrapped around me and I sank to the ground and pulled them both into my arms.  "He won't touch you again."  They cried and I cried with them.  "No one was going to hurt them again.  I would make sure of it."
 
 
 # Protection
 At the bottom of the stairs we heard Garrett open the door and when I looked down he was staring up at the three of us.  But he huffed and turned back down the hall and I assumed to security to see about getting the recording.  I stood up with the kids in my arms and let them find their feet.  "I have to get that recording."
-
+ 
 The let me move but as soon as I was standing in front of the console they were attached to me again.  I worked as quickly as I could and saved the file of the camera to my phone which I then sent to Sage with a message.  "Keep this safe for me, love.  I'll explain in a bit."
-
+ 
 He sent me a quick reply, "Got it."
-
+ 
 I put my phone away and knelt down between the two kids and smiled at them.  I knew how to shield myself from a lot of things.  We could protect ourselves from mental intrusion by paths.  I don't know why I never thought of trying it with Garrett, maybe because I didn't realize he was still in my head. But these kids hadn't learned how to shield anything.  I knew pack magic could protect from some things, but I wasn't pack.  But Adrian insisted I was.  So I focused on that one truth, the hope that I could protect these kids from themselves.  I pulled on that invisible connection, the pack bond.  And I felt Sage, I heard him gasp in my head.  I felt Drake.  I blinked when I felt Matt there too... When the fuck did I did I do that?  Faelen was there too.  I couldn't see them, but I felt them.  I could sense them.  And at a distance I felt others but I didn't know what that meant.
-
+ 
 I extended that connection to the kids I wrapped them in that sense of safety that was the pack.  The home, the forest, safe.  Family.  Pack!  They both relaxed in my arms and I felt them next to me both physically and mentally.  I don't know what it all meant, but if it kept them safe then I would take it.
-
+ 
 I needed to talk to Adrian.  Or maybe Darwynn when he got back.  I kissed each of them on the head.  "I think you'll be safe now.  But you tell me if you aren't okay?"
-
+ 
 They both nodded and I carried them down stairs and to their families.  I wanted to have a chat with them.
 
 
 # Sam’s Mom
 
 Sam's head was on my shoulder, Emma was just staring in behind us.  She was trembling with fear, I could feel her fear.  I muttered again, "He won't hurt you again.  And if he does I will take care of it."
-
+ 
 Emma put her head on my shoulder and relaxed a little bit but we had made it to Sam's mother's place.  I didn't know if either would be home, but Sam seemed to think they would be.  I let him down when he squirmed and he produced a key and unlocked the door knocking before he did then turned the know and opened it.
-
+ 
 A slight woman looked up from the couch she smiled at Sam and then frowned at me.  She got up and rushed over to us.  "Oh my god what happened?"  She was taking Emma from me but Emma clung tighter.
-
+ 
 I held Emma to me.  "I don't think she will go with anyone but her parents right now.  They've been through a lot this past year.  And I think it's all over.  Can you call her parents?  And Dylan?  I need to talk to all of you."
-
+ 
 She looked up and me and glared.  "And who are you?"
-
+ 
 "It doesn't matter who I am, can you please call them?  It's important."  I asked again with a little more impatience.
-
+ 
 She stepped away and made the call.  I heard her side of the conversation.  "Dylan, someone is here with Sam and Emma.  He wants to talk to their parents.  No, I don't know him.  Yes, tall, orange hair and nails and thick eyeliner, why? Should I be worried?"  The worry had started to increase in her voice I could only imagine what Dylan was saying on the other side of it, I could have tried to listen but it wasn't important.
-
+ 
 She called Emma's parents and they said they'd be right over.  Emma clung to my neck but his mother finally took a look at Sam and she gasp and knelt down in front of him and took his face in her hands.  "Oh baby, did he hurt you?"
-
+ 
 Sam nodded his head and that was all he could do before she was standing up and she was shoving me across the room.  "You don't have any right to hurt my kids."
-
+ 
 I smirked a little and she slapped my face.  Sam took my hand and wrapped himself around my leg and yelled, "Not him!"
-
+ 
 I smiled to disarm her and she glared at me.  "I will explain it all when everyone is here."
-
+ 
 The door rushed opened and the door knob slammed into my back making me wince in pain and Dylan stopped short but he was inside the apartment soon followed by who I assumed were Emma's parents.  I didn't know them.
 
 
 # Venatori Parents Suck
 
 Dylan didn't bother apologizing he was walking around me and looking at Sam who was clinging to my hand.  I smiled at Emma's parents.  "My name is Nox Sétanta.  I've been dreaming about your children."
-
+ 
 The women gasped apparently they knew of the dreams.  "We might want to sit down and talk."  I said
-
+ 
 Emma's father took my hand. "Tim.  And this is my wife Darla.  What's this about?"
-
+ 
 "You might want to sit down."  I said and waved my hand to the couch sitting across the room.  There were enough seats for the four of them to sit down comfortably so I sat on the floor so I wasn't imposing.  I was about to tell them that someone had been abusing the children, but I had no proof of it.
-
+ 
 Both Emma and Sam sat with me much to their parents disapproval.  I took a deep breath to calm my fear and my anger.  Both were still making me jittery and I was glad to be sitting down.  "18 years ago I came to the Venatori because I sparked.  My teacher was Garrett Spencer.  And he has the ability to make me see things that aren't there - to feel things that aren't real.  When I graduated into regular classes he tried to hurt me again, and I sparked.  He said it was an accident, I suppose hoping it was another year I could spend with him.  But it wasn't an accident.  I knew what I was doing.  I lit him on fire on purpose because I wasn't going to let him hurt me again."
-
+ 
 Sam clung to my arm and Emma was still wrapped around me and her hands squeezed tighter.  The both knew I said the truth, they had gone through it.  "But that next year I started having dreams, almost immediately after I stopped seeing Garrett.  I saw the same things he did to me in my head, except now I was hurting myself with my own ability.  I can open my psychiatric records to you if you don't believe me."
-
+ 
 Darla cried out, "Why should we believe some crazy?"
-
+ 
 I ignored her and continued with a sigh.  "While I was out with Dylan last month, shortly after Dylan told me Sam was having nightmares and had scars on his back like I have on mine I had a dream.  I dreamt of 5 other kids other than myself who Garrett was sending the same nightmare too.  A pair of glowing eyes, mine are red, but change colors if I'm scared about something else.  The eyes get closer and that's when the hooded figure starts sprouting tentacles of the elements and they lash across my back.  I can't scream.  I can't move.  Doing either only makes it worse.  When the hooded figure is in front of me with those glowing red eyes he removes the hood exposing who is really there.  But I never get to see the face clearly."
-
+ 
 "You could just be reciting what the kids have been telling you.  It's almost word for word." Sam's mom said, I think her name was Lisa.
-
+ 
 "I wish that were the case, but this is the first time I've met either Sam or Emma.  That was the dream I've had every night for the past 18 years.  I have it every night unless I feel completely safe.  Every morning for the past 18 years I have drawn the images I saw.  I have 18 years worth of sketches set aside that I can have brought up to my apartment if you really want to see them."
-
+ 
 I hugged the two kids to me.  And spoke to Sam, "Why don't you show Emma your room?"  The both held tighter.  I reached in my back pocket and pulled out my wallet, and two cards and handed one to each kid.  "I want to show them what I recorded.  But I don't want you to see it again, to live it again.  Okay?  This is my card.  My personal number is on it.  You can call me anytime.  Night or day if you are scared alright?"
-
+ 
 Sam and Emma both took the cards and looked at it.  "Can you go play?"  Sam offered Emma his hand and she took it, and the two six year olds went off down the hall.
-
+ 
 I took out my phone.  "There has never been proof that Garrett was the one doing.  The footage in the fire-starter rooms just shows what you'd expect to see. The big difference between what he did with me, and the other kids was my tapes only show me with my hands on the wall and nothing else.  Because he was in my head doing the rest."  I played the video of Emma.  Her hands were against the wall and nothing else until I pounded on the door.
-
+ 
 When the lash of air landed on the back of Emma the parents eyes went wide.  His small confession was lost on them as they watched him.  Dylan looked at me over my phone.  "Why didn't you kill him?"
-
+ 
 I chuckled.  "Do you know me at all?"
-
+ 
 "He hurt you.  He hurt Sam.  He hurt Emma and all you do is threaten him."
-
+ 
 I shook my head.  "That's not all I'm going to do."
-
+ 
 All four parents stood up and towered over me.  Lisa pointed a the door.  "Get the fuck out.  You don't care about our kids.  Just your reputation."
-
+ 
 I sighed. Venatori sucked!  I nodded, "Fine.  But don't let Garrett near them again."
-
+ 
 Tim frowned, "Like we needed you to tell us that."
-
+ 
 I was at the door and I turned around with a smirk on my face and opened the door for a speedy escape.  "Well maybe if you had listened to your kids instead of thinking they made shit up they wouldn't have needed me to save them."  I stepped out of the room and slammed the door behind me.
 
 
 # Calling Dad
 
 After dealing with a bunch of dip shit parents I needed to go for a run.  I changed clothes in my apartment and then I went for a run.  I ran for a good hour before I found myself at Sage’s house.  I called my Dad while I sat down on the front stoop of his house.  I was still catching my breathe when he picked up.  “Hello?” he said.
-
+ 
 “Hey Dad.  Can you pick up Drake and watch him.  I’ll come get him later?”
-
+ 
 He chuckled, “What about Faelen?”
-
+ 
 “He can stay in the studio when he gets out of school.  You can stop by if you are hungry I’m sure he cooks better than you do.” I teased.
-
+ 
 Kai laughed, “Of course he does.  I don’t cook.  And your boys are too spoiled to eat in the cafeteria.”
-
+ 
 “Will you pick up Drake?”  I asked again.
-
+ 
 “Yes, son, I will, I love my grandsons.”
-
+ 
 “They love you too Dad.  I’ll call if I can’t make it home, but Fae can watch Drake for the night.”
-
+ 
 “They can both stay with me Nox.”
-
+ 
 “Thanks Dad.”
 
 
 # I Need a Break
-
+ 
 I hung up the phone and walked around the side of Sage’s house and knocked on the side door where my love was still working.  He called out, “It’s unlocked.”
-
+ 
 I opened the door and shut it behind me before I put my hands on his shoulders and he looked up at me with a smile. “Hey, Nox.  What do I owe this pleasure?”
-
+ 
 “I needed a break.  Venatori parents are a pain in the ass.  I think that no matter what their kids say they don’t care.  And when they are given proof that their kids were wrong they blame everyone but themselves.”
-
+ 
 Sage frowned as he turned back and started typing again.  He said, “That’s how most people are, I don’t think it’s solely a Venatori thing.”
-
+ 
 I sighed, “You are right, but at least there are other people the kid can go to that might believe them and find the answers in your world.”
-
+ 
 Sage turned in his chair and pulled me down into his lap.  “You okay?”
-
+ 
 I pressed my face to his neck and nodded,”I am now.”
-
-He turned back in his chair and started typing again with one hand while the other played idly with my back.  I still froze when he did it but I relaxed almost immediately into his arms.
+ 
+He turned back in his chair and started typing again with one hand while the other played idly with my back.  I still froze when he did it but I relaxed almost immediately into his arms. 
 
 
 # Lost in Thought
@@ -330,13 +330,13 @@ Darwynn sighed, "I'll try, but I can't guarantee you anything.  But you are payi
 
 # Nerves
 
-I wasn't a date kinda guy. And this felt very much like this was a date.  I was cooking.  Sage was comfortable with them.  They'd been on a few dates but that was about all I knew except that he smelled like them everytime he'd seen them.
+I wasn't a date kinda guy. And this felt very much like this was a date.  I was cooking.  Sage was comfortable with them.  They'd been on a few dates but that was about all I knew except that he smelled like them everytime he'd seen them.  
 
-Sage was wearing blue jeans and a black t-shirt with Tony Starks arc-reactor in the center of his chest.  It was one of my favorite shirts so I knew what it was.  He was grinning at me while I was cooking our dinner.  Sage had requested I make garlic and white wine chicken with whatever sides I wanted.  He even said that he eat a regular old tossed salad if I made that.
+Sage was wearing blue jeans and a black t-shirt with Tony Starks arc-reactor in the center of his chest.  It was one of my favorite shirts so I knew what it was.  He was grinning at me while I was cooking our dinner.  Sage had requested I make garlic and white wine chicken with whatever sides I wanted.  He even said that he eat a regular old tossed salad if I made that.  
 
 So I made what Sage asked.  It was staying warm in the oven while I took a shower and tried to find something to wear.  Sage was doing the casual thing, but he was already comfortable with his friends, I'm not sure I was.  I remembered being nervous the first time I took Sage out.  And now was really no different.  Sage came up behind me and wrapped his arms around me while I was putting on my eyeliner.  He pressed his cheek to my scars.  "There is nothing to be nervous about."
 
-"I'm not nervous." I lied.  Sage laughed and pressed his lips to my back.
+"I'm not nervous." I lied.  Sage laughed and pressed his lips to my back.  
 
 The door bell rang and Sage jumped.  "I didn't know that worked."
 
@@ -348,7 +348,7 @@ Sage turned me around, "How much did that cost you?"
 
 The bell rang again.  "Shit.  This isn't over."  He kissed my cheek and walked out of the bedroom.  "Wear the blue long sleeves.  It's my favorite."
 
-I grinned, "Okay."
+I grinned, "Okay."  
 
 # Dinner Date
 
@@ -820,7 +820,7 @@ The last three words hit home for Sage the hardest his eyes brightened and he sm
 
 # Running into Dev
 
-Running was always theraputic.  The ability to just get lost in my mind.  I've always been a fan of working out, it's a go to thing to do but when I need to think I run.  So I run every night before I make dinner.  It's a habit I started in school and have just been doing since.
+Running was always theraputic.  The ability to just get lost in my mind.  I've always been a fan of working out, it's a go to thing to do but when I need to think I run.  So I run every night before I make dinner.  It's a habit I started in school and have just been doing since. 
 
 It allows me to think about the day.  Process the stresses and push it into my legs and arms, and moving through the city streets.  I ran the same circuit everyday so when I saw Devin coming out of a building that I passed by everyday I had to stop.  He kept popping into my head and now there he was.  I grinned and I ran up beside him as he walked in the direction I was going.  I was a little out of breath but I managed, "Fancy meeting you here."
 
@@ -862,13 +862,13 @@ I laughed.  "Are you asking me out on a date?"
 
 Dev smirked.  "Maybe."
 
-"What did you have in mind?"  I wanted to kiss him.  I could almost feel the touch of his skin on mine and the weight of his body on mine.
+"What did you have in mind?"  I wanted to kiss him.  I could almost feel the touch of his skin on mine and the weight of his body on mine.  
 
 "Do you do that on purpose?  You'd make a lousy hunter all those thoughts."  He asked.
 
-I shook my head.  "Sorry."  I pulled my shield around me and sighed at the mental drain it was.  I hated being a rock.  I hated not lettng my emotions show.
+I shook my head.  "Sorry."  I pulled my shield around me and sighed at the mental drain it was.  I hated being a rock.  I hated not lettng my emotions show.  
 
-Dev's eyes went wide.   "Fuck me.  Okay.  Yeah.  Don't do that."
+Dev's eyes went wide.   "Fuck me.  Okay.  Yeah.  Don't do that."  
 
 I blinked at him in confusion I wasn't sure what he meant and he seemed to understand because he clarified for me, "Don't block that hard.  I mean you were there all lust and desire and then the next second completely gone.  I don't mind hearing you.  Most people don't like it though but I can't help but listen to you.  Never happened before."
 
@@ -876,7 +876,7 @@ I blinked at him in confusion I wasn't sure what he meant and he seemed to under
 
 "No don't shield more.  It's okay.  I see it hurts you now to hold the shield while you aren't hunting a telepath."
 
-"You saw that," I sighed.
+"You saw that," I sighed. 
 
 "I know what you are, Nox."  He ran his fingers over my right temple and the tattoo.  "My folks registered with your headquarters when we moved here.  My dad was a telepath too.  My mom didn't know, she thought it was just lost kid registry, didn't realize my dad registered too.  Dee doesn't know though.  So your bounty hunting story will have to stick around until you are ready to tell the truth.  I know it's hard when you kill people like us for a living."
 
@@ -892,7 +892,7 @@ I grinned at him, "So stop asking around and ask me what you want to know."
 
 "I don't have many nights off, you sure you can't get away for lunch?"  Dev asked.
 
-"I can get away for lunch.  We could meet at Bonnie's?" I said.  We were setting a date - one where sex wasn't even on the menu.
+"I can get away for lunch.  We could meet at Bonnie's?" I said.  We were setting a date - one where sex wasn't even on the menu.  
 
 "I can do tomorrow at noon.  I'll have a bout an hour and a half before I need to be at work that day.  Expecting a shipment and it's my turn to come in early."
 
@@ -900,7 +900,7 @@ I grinned at him, "So stop asking around and ask me what you want to know."
 
 I smiled as he pressed his lips to mine.  He tasted sweet like candy and I wandered what he'd been eating before he came to work.  He bit my bottom lip playful and I let out a small moan.  Dev pulled away from me and waved, "I'll see you tomorrow Nox."
 
-"Tomorrow Dev."  I took off at a jog backwards before turning around and running back to Sage's.  It wasn't far and I was suprirsed how close it was.
+"Tomorrow Dev."  I took off at a jog backwards before turning around and running back to Sage's.  It wasn't far and I was suprirsed how close it was.  
 
 # Takeout
 
@@ -3767,4 +3767,288 @@ The demon laughed as he came to a stop at the tree.  A single flame danced upon 
 The demon.... "Morpheus," it said.  "My name is Morpheus not the demon."
 
 I grinned at him and thought demon... as hard as I could.
+
+# He Doesn't Listen
+
+The demon was getting angrier.  He was stalking back to me when I felt the presence.  Fuck!  It wasn't nearby, but I felt Dev.  I could smell his familiar scent on the wind.  There was tickle against my skin.  Like a ghost passed over me.  A hand grasping me.  I closed my hand around it, it grasped nothing but it felt good.
+
+A ghost touch against my cheek.  The demon stalked me but it didn't seem to be getting any closer.  Like time stopped.  Maybe it had.  No it wasn't that, it was like it was wading through water, or stuck in a swamp.  He was moving - just slow.
+
+I took a step back but I moved fine.
+
+A felt a drop on my cheek.  I wiped it off and looked up but there were no rain clouds above me.  The stars shown brightly in the sun light sky of my dreamscape.  It was such a bizarre thing.
+
+In the distance there was a loud sound - a thunder clap?
+
+The fury on the demon's face grew stronger, as it waded through my dream.  I wondered what was happening.  A flame flickered above his hand, in one moment it was empty and then it was just there.
+
+I tried the same thing but my gift was unreachable.  Fuck!  The demon was hijacking me.  I felt the tree burning beyond me it again.  It was blazing like bonfire but yet it wasn't turning to ash.  I stared at it beyond the demon... I felt it burning my skin yet I was intact.  There was no denying what I felt.  I knew what it felt like I'd felt the burn of death on my skin before but nothing burned.
+
+Another loud thunderclap.  Closer this time.  The demon turned and looked in the direction it had come and it turned towards it in the muck and threw the fireball in it's hand.  I stepped in front of the ball of fire without thinking.  Whatever it was trying to do I wasn't about to let it do it.  Not since the breeze in my dreamscape brought orange and lavender and roses on it's whispereing tendrils.  My love was coming.  Dev was coming.  Dee was coming....
+
+The demon laughed and brought the tentacles above him, fire and air, earth and water all stood behind him and I thought about Dev.  I let him in.  I pulled him towards me.  I didn't want to face this alone.  Face the terror alone.
+
+Holding my hand, Sage squeezed my fingers.  Dev was pressing his fingers to my check and Dee was holding my ohter hand.  Their eyes were distinct in the light of my dreamscape and I flicked to the tree and smiled.  Dev grinned at me and pressed a kiss to my lips and then turned towards the demon, but it was Dee who spoke.  "You can't hurt us anymore."
+
+"So brave little one.  Come to me."  He beckoned a finger and she took a step closer but I held her hand and I pulled her back.
+"He doesn't own you."
+
+Dee turned to me, there was fear in her eyes.
+
+"Oh you don't know what I do for her do you.  None of you do."  Morpheus laughed.  "Such ignorant fools."
+
+Dee screamed and fell to the ground losing her grip on my hand a she clutched at her head.  "No.  No more.  I'll listen."  I knelt down beside her and touched her cheek. She looked up at me and I could see the pain.  She flinched away from my fingers after a moment.  "Don't touch me."
+
+I reached out towards her not with my hand but my power.  But the demon had it all and it laughed.  "Don't let her go to him."
+
+Dev was down at her side and holding her tightly against him.  Sage was there too.  The flickered in and out.  "Go."  I said.  "I'll be okay.  Take care of Dee."
+
+They both looked up at me and I saw the hesitation in their eyes.  "Please."  I begged.
+
+Sage looked to Dev and Dev was watching me.  I felt more than heard Dev say, "Remember it's your dream."  And the three of them blinked from existance.
+
+# It's My Dream
+
+Morpheus laughed.  "Even your friends abandon you."
+
+I smiled at the demon with red eyes.  His pale skin made paler from the light his eyes made.  "They aren't my friends."
+
+"Even you admit you are worthless.  Come to me, Nox.  Be mine.  I'll give you everything you want."  The power of persuasion was thrown at me.  I could feel the magic trying to take hold.  I didn't have my normal defenses available, all my power routed through the demon.
+
+"I have everything I need."
+
+"Who said anything about need.  I said everything you want.  We can take whatever it is you want.  You want to free the Venatori of their chains of tradition.  I can give it to you.  With me at the helm we can take the Venatori.  I'l even let your reshape the vermin to whatever way you desire.  My gift to you."  He held out his hand. "Join me."
+
+"I don't care about the Venatori.  Not enough to take it from them.  You need to do better than that."
+
+Morpheus whiped all of the tentiacles behind him in my direction and I watched as they fell against my skin.  I bit back the pain but their razor sharp edges did nothing to my skin.  That's when Dev's words rang true.  This was my dream.  I was in control.  I was afraid this was like my other dreams.  The demon had power over me.  But this was my dream.  Not Garrett's, not Dev's - mine.  In my head.  My world!
+
+I smiled at him and I held out my hand and I felt my power flow through my fingers.  Just remembering that simple fact and rendered the demon's control moot.
+
+Morpheus screamed, "Nooo!"  The world turned dark and I willed it light again.
+
+Fire erupted everywhere and I quelched it with a thought.  "This is my world, Morpheus."
+
+I remembered what I'd done to the mara in the basement of Sage's house for attacking my boys.  Morpheus cackled, "Thank you for reminding me."  And tens of thousands of little black oozing creatures stood behind him.  An army of nightmares.  I closed my eyes and thought about all the little suffocating bubbles, tens of thousands of little bubbles and they screamed.  I covered my ears from the sounds they made as they died.  Morpheus screamed incoherent words as they died around him.  Little floating orbs of black and red ooze.
+
+"You will not defeat me."  He ran towards me and the moment he touched me I felt that charge of electricity and I felt everything the demon did.  I could feel it's connection to everyone near me.  How it had manipuluated dreams for thousands of millenia.  I knew it's secrets.  I could feel it's power.  I could take it's power.  I could have everything if I wanted to.
+
+I heard a small voice in my head, "Come back to me Daddy.  I'm scared."  And that was all I needed to forgt the darkness.  My hand found the demon's throat and I squeezed.  Like I had done when it had been in Dae'lin's body.  This time I wasn't afraid of killing it.  I squeezed tighter, willing the world to suck the air from the lungs of the creature before me.  I didn't use my ability here.  It worked in the outside world, but not here.  It was just illusion.
+
+The demon kicked me and we tumbled to the ground but I didn't let lose my grip on it's throat.  It tried to get the advantage.  We tussled on the ground until I had a grip on it's neck so tight I heard a snap and it fell lip.  I heard a scream in the outside world but I couldn't leave yet.  I had to make sure it was dead.  Dead and not just in hell.  The dream world manifested mundane tools - saw and shovel.  And I got to work.
+
+# Not Again
+
+I opened my eyes and promptly closed them again the white lights of the Infirmary glared down on me and the soft beeping of the monitors.  I shifted in the hospital bed and felt the hand clutching mine stir and I turned in that direction.  Beside me sitting in the chair was a tossle of brown hair.  She murmurred in her sleep.  I put my hand in her hair and she stirred again.  Then she was clutching at her head.
+
+There was movement on the other side of my bed and I saw Dev and Sage come around to Dee.  Her hands clutching her head.  Dev said, "It stopped when we left the dream, what's going on?"
+
+"She's an empath."  I said groggily.
+
+Sage looked up at me and fell ontop of me crushing me, "Nox!"  And then he pulled away and looked back to Dee and frowned.  "Wait, what?"
+
+I touched her head again and shared my shield with her and she calmed down.  "She doesn't have a shield."
+
+Dev laughed but I could hear it shaking.  He was nervous.  "I've seen it.  You have too."
+
+"Not anymore." I said.  "The demon is dead."
+
+"What?"  Dev stood up in anger.  I don't think he was mad the demon was dead, but that the demon had something to do with Dee - his Dee.
+
+Dev frowned at me.  "Our Dee.  Jesus fucking christ Nox ... our."
+
+I looked away from him and he grabbed my chin.  "Just because you weren't here doesn't make it any less so.  We've grown together because of **your** fucking life.  The three of us here waiting for you to wake up - day in and day out.  All of us worried about you."
+
+Sage looked at Dev.  Dev shook his head.  "Why is she better now?" Dev asked.
+
+"I'm lending her my shield."
+
+"We'll have to teach her how.  We can all lend her some and teach her to build it up.  How do you know she's an empath Nox?  Did the demon tell you before it died?"
+
+I shook my head.  "No.  I see it now.  Like I see you are a telepath, and like Sage is a technopath.  I see her now.  See the patterns around her now that the demon isn't protecting her from her power.  I see everything about her now.  I don't think she'll be happy."
+
+Sage frowned, "You mean she's like the rest of us - not normal."
+
+"Why would you want to be normal Sage?" I asked.  He frowned at me and sighed.
+
+Dev frowned, "He says you'll never understand."  He pressed a finger to my lips to quiet me, he knew I wanted to go off on the fact that I did know what he meant.  Dev took Sage in his arms and pressed a kiss to his lips.  "He understands far better than you or I will ever know.  But let's help Dee.  You and I can lend our shields to Dee.  We can help her learn about who she is.  She'll need all of us."
+
+Sage nodded and he pressed his hand to Dee's head. "I don't know what to do."
+
+Dev and I laughed together.  "You do, just touch her and it'll happen."  Dev said.
+
+I added.  "You'll want to think extending your shield rather than just letting it work.  We don't want you to have to touch her all the time."  I grinned at him, "The rest of us might get jealous."
+
+Sage grinned.  Dev laughed as he put his hand on top of ours and we all feed her a little bit of our shieldinging.  I sent the power of pack through them.  Sage gasped and Dev looked at me with wide eyes.  "What are you doing Nox?"  Sage breathed out.
+
+
+# What Did I Miss
+
+I just smiled at Sage.  "Making sure she'll be okay."
+
+Sage shook his head.  "That's a pack bond.  And not just any bond.  You can't do that with this many people."
+
+I nodded.  "I just did."
+
+Dev looked at me, "What did you do?"
+
+Sage looked at him.  "He tied us to him.  No one in the pack can touch us.  We are his - mate."
+
+"It's not like that." I said.  "It's protection.  Same as what I did with you before with a change."
+
+"That isn't the same.  I don't feel compelled to do anything like before.  I'm not your alpha.  This is the mating bond, Nox I know it is."
+
+"It's not.  I change it.  Sage I promise it's only to help protect us all from threats.  You can feel me.  I can feel you. There will be no worry if we are safe - we'll know."
+
+Sage frowned, "And then I'll know and I won't be able to do shit about it."
+
+I grinned at him.  "There are a lot of things we need to talk about.  But I don't think you'll need to worry about me getting hurt."
+
+Sage rolled his eyes.  But Dev's hand on his shoulder made him look at the other man.  "He's telling the truth isn't he.  He thinks we'll be in danger, but he won't be getting in it without us."
+
+Dev laughed.  "We'll always worry.  He'll always be in danger.  But I think he has a plan.  I can't sense it."
+
+Dee stirred below our hands and when she sat up her eyes were red and puffy and she looked like she'd been crying.  "What happened she asked?"
+
+Dev pulled her into him and brought the three of them together in a tight embrace, "Oh nothing.  Just a little bonding."  Sage groaned but Dee held them close.
+
+I felt left out.  I didn't even want to think about moving or joining them.  My body ached like I'd run a marathon.  Dee looked at me and frowned.  "Why are you sad?  You are sad right?"
+
+I smiled.  "I feel left out.  The three of you all hugging and pressed together like the lovers that you are."
+
+She smiled and patted my leg.  "We are only here because of you."
+
+"I know."  I chaned the subject.  "What did I miss?"
+
+Sage frowned, "About two weeks worth of things.  And Dev's birthday."
+
+I looked around the room and saw the Halloween decorations and I asked, "Did you get a lot of trick-or-treators?"
+
+Dev laughed.  "I told you he knew what Halloween was."
+
+"I've never done any of that, but I'm not an idiot."
+
+Sage blushed.  "See told you he didn't do any of it."
+
+Dee looked at them and then back at me and sat down on the bed.  Her hand ran through my long hair.  "You've been out of it for a few weeks.  It was a few days ago since we finally breached your shileds.  Are you okay?"
+
+"I'll be better once I get out of this bed."  I kinda wanted out now.  I needed out of this building while I wasn't under lock and key.  They had tried to kill me.  I hadn't forgotten the little talk I had.
+
+Dev pulled Dee out of the way by her arm.  "He means now."
+
+Sage pulled a bag from the closet, "A change of clothes."
+
+I tried to get up.  I really did but my body refused to work.  Dee helped me dress while the other two went out to get the boys from class at my request.  I had things to do... I had to get something off my chest.
+
+# Exile
+
+All three boys came with Sage and Dev.  Matt was looking at me with a frown. "Why are you pulling them out?"
+
+"Can I talk with Matt?"  Everyone looked around and then left.  Drake didn't want to leave but Dev carried him out whispereing to him about how they could all go get icecream as soon as his dad was done doing something important.   I wondered how much Dev had picked up from me.  I could tell something was bothering him.  I couldn't read him like I could Sage, but there was something tense between all of us.  And I was about to make it worse.
+
+When the door closed behind them, Matt sat down and whispered to me, "You are leaving for good aren't you?"
+
+"I have to."
+
+He smiled.  "Good.  It's about fucking time.  I'm coming with you."
+
+"Matt.  Your dad.  You need to finish your lessons."
+
+He laughed.  "No one here can teach me anything about my ability, Nox.  And everything else well I can be just as human as you or Fae.  Please don't make me stay."
+
+I grinned at him and pulled him close for a hug.  He wrapped his arms around me, "I don't think I could have stopped you even if I wanted to Matt.  But you know what this means?"
+
+Matt nodded.  "I do.  Everything involved, it's one of the first things we learn."
+
+"I remember."  I tried to stand up.  "Help me stand up."
+
+The boy had grown more in the short time we'd know each other, and I swear since the last time I'd seen him.  How long ago was that?  I couldn't remember.
+
+Matt looked at Fae and smiled.  "You remember that bag I packed for an emergency Fae?"
+
+He nodded.  "Go get it."
+
+Fae looked at him.  "You are running away?"  He looked sad.
+
+"Not running away, running home."  I would be lying if I didn't say I felt tears welling up in my eyes.  Fuck I was an emotional mess.  But I was done being manipulated.
+
+"Sage can I borrow your phone?"  I asked.
+
+He nodded and handed me the phone and I called Dorian as we walked down the Infirmary.  He answered, "Sage?"  Any news?"
+
+"I'm awake if that's what you wanted to know."  I said and I heard the sigh of releif from my father figure and mentor.
+
+"D, Can you come down to HQ and bring my dad and walker and whoever you think might care."
+
+"Care for what Nox?"
+
+"You'll see D.  Please?  I have to do this."
+
+"Nox... don't do it.  You can do more good here."
+
+"Sorry D.  I can't do it anymore.  Trust me.  Bring them please.  I need you there."
+
+Dorian agreed and I hung up the phone.  "Nox what are you doing?" Sage asked as I handed him his phone.
+
+"I'm going to tell the Venatori exactly what I think of them."  I said as we headed down to HQ.
+
+No one tried to stop us.  Not once.  It was like the world had stopped to realized they had fucked up for the last time.  No one wanted to get in my way.  But then again when you are surrounded by supernatural creatures with one exception, why would you want to stop me?
+
+When we got to HQ I had the others stay near the elevevator as I walked towards Dae'lin's office with Matt's help.  His grip on my waist was strong, and he was going to outgrow me in height in a matter of months.  He had grown so much since we'd met.  I whispered to him, "I'm proud of you."
+
+"I wish my dad could say those words, but you are a better father than he ever was."
+
+I smiled.  "I try.  But don't do this to spite him.  You can still walk away."
+
+He stopped in the middle of the open space before the fish bowl.  They could see us at the elevator.  There was a crowd forming.  As with everything in the AU building, rumor flies fast.
+
+Striding from the fishbowl was Mark Green.  He was weak.  I could see the patterns flickering around him but they grew dimmer with each passing day.  Mark Green would die and the Venatori would pick a new leader.  But his power flaired and I saw colors brighter than a few moments before.  It was a brief moment.  And I grinned as my leader preened like a peacock.  Matt looked at me and smiled.  "You could do better."
+
+"I know but I won't."  I let go of Matt and stood before Mark Green.
+
+He asked, "I hear you have something to say?"
+
+"I do."  I shifted to stand straight and be the man they had made me.  "You tried to kill me."
+
+"I've done no such thing.  You aren't worth the time to think about Mr. Sétanta."
+
+"I meant the collective you.  The Venatori.  Your scientist poisoned me while I was on suicide watch.  For their researc project.  I don't give a fuck if it's in your right to experiment on me.  I'm done with you.  I'm done pretending that what we do here is right.  You are wrong.  Killing to least of the crimes is barbaric.  There are so many cleaner ways to handle this.  I get death is the only sure way we can fix the worst of the worst."
+
+"I'm tired of fighting you."
+
+Mark Green smiled.  "It's about time.  I think there is a pool running around here.  I wonder who won it."
+
+"Then I'll just go."
+
+Kai stepped out of the shadows of Dae'lin's office.  "Nox, why don't you challenge him.  You could easily win."
+
+"Why do I want to lead the Venatori, Kai?  Will you follow my orders? Will you bring in the vampires who are slaughtering those frat boys.  You think I didn't know what you didn't show me?"
+
+Kai frowned.  "Don't leave it like this Nox.  You'll be Exuli.  We won't..."
+
+"There is nothing in the rule book that says you can't see the boys.  We'll make arrangements."
+
+Dylan stepped up next to Kai.  "You'll leave Sam and Emma to their lessons without help."
+
+"Garrett is dead.  The demon who stole their powers and hurt them is dead.  I killed it.  And I'll know if they need me again.  I'll always be there for them.  Always."
+
+Around us security had formed and I thought at Dev, _get them out of here.  I don't want you to watch what's next.  I'll be home soon._  I trusted Dev to get my... no our family out of here safely.
+
+Matt stood next to me, "And I'm going with him.  No one here can teach me.  And I can't be one of you if you can't accept people like him or me."
+
+Matt's father rushed up towards us but security stopped him.  He shouted.  "Matthew, your mother will be so disappointed."
+
+Matt sighed.  "She's dead, Dad.  I'm sorry but I have to do what I beleive in. Just like Mom taught me."
+
+The man standing next to me.  "Are you truly doing this son?"
+
+I nodded.  "I am."
+
+"You know what that means."
+
+"I do.  We will go willingly."
+
+"It's permanent - the world will see the tattoo etched on your temple."
+
+I nodded and Matt put his hand on my waist and helpd me close to his body.  "I know." I whispered.  I was about to face one of my biggest fears.  And I would do it just as I did when I was 18 - with fear but without giving them the satisfaction of seeing me shaking in my boots.  Fuck them.  Fuck the Venatori!
 
